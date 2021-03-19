@@ -7,3 +7,12 @@
 首先声明一下，我是机械系机器人工程专业的，主申美国M.S.，加拿大和欧洲也有申请，海投选手（因为觉得自己菜），现在手上有几个还算OK的admission。不同专业的申请情况差距比较大，所以我写的仅适合部分专业的学生，同时也仅针对北美（主要是美国）Master的申请（而且比较偏向M.S.）。
 
 我的申请季持续了整整两个月，那段日子真不太好过，因为自己还碰到了很多其他杂七杂八的事情，影响了心态。有很多信息真的是一点一点积累的，我的目标就是把我知道的尽自己所能写在这里，希望对看到的人都能有所帮助。
+
+2021-03-18
+
+张子昕
+Zixin Zhang
+
+南方科技大学，2017级，机械与能源工程系，机器人工程
+
+Robotics Engineering, Department of Mechanical and Energy Engineering, Undergraduate Student (2017), Southern University of Science and Technology
